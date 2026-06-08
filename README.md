@@ -1,0 +1,1 @@
+# tekstury_i_oswietlenie
